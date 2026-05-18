@@ -8,6 +8,7 @@ God’s Word is sweeter than honey, bringing wisdom and daily meditation. It mak
 
 Prayer:
 Lord Jesus, make Your Word sweeter than honey to me. Fill my heart with meditation and wisdom. Amen. Hallelujah!
+கர்த்தாவே இயேசு, உமது வசனத்தை எனக்கு தேனிலும் மதுரமாக்கும். என் இருதயத்தை தியானத்தாலும் ஞானத்தாலும் நிரப்பும். ஆமென். அல்லேலூயா
 
 Remnant Tamil Worship - Freely given – All glory to Jesus Christ.
 ஆமென் | அல்லேலூயா
