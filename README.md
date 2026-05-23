@@ -10,7 +10,6 @@ Qoph (145-152): Wholehearted cry, early morning prayer, nearness of God.
 
 Remnant Tamil Worship – Freely given, All glory to Jesus Christ. ஆமென் | அல்லேலூயா
 
-Songs:
 
 Tamil Christian Worship Album based on Psalm 119 (Mem to Pe sections).
 
