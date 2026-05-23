@@ -7,3 +7,5 @@ Ayin (121-128): Long for salvation, love commandments.
 Pe (129-136): Wonderful testimonies, light & understanding.
 Tsadhe (137-144): Righteous & faithful Word, zeal for it.
 Qoph (145-152): Wholehearted cry, early morning prayer, nearness of God.
+
+Remnant Tamil Worship – Freely given, All glory to Jesus Christ. ஆமென் | அல்லேலூயா
