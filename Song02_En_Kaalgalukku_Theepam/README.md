@@ -7,3 +7,5 @@ Psalm 119:105-112 (Nun) – God’s Word is a lamp to our feet and light to our 
 Prayer
 English: Lord Jesus, be the lamp to my feet and light to my path. Guide me by Your Word and revive me. Amen. Hallelujah!
 Tamil: கர்த்தாவே இயேசு, என் கால்களுக்கு தீபமாகவும் என் பாதைக்கு வெளிச்சமாகவும் இரும். உமது வசனத்தால் என்னை நடத்தி உயிர்ப்பியும். ஆமென். அல்லேலூயா!
+
+Remnant Tamil Worship – Freely given, All glory to Jesus Christ. ஆமென் | அல்லேலூயா
