@@ -11,3 +11,5 @@ Prayer English: Lord Jesus, You are my hiding place and shield. Protect me and h
 Tamil: கர்த்தாவே இயேசு, நீரே என் மறைவிடமும் கேடகமும். என்னை காத்து, உமக்கு மட்டும் பயப்பட எனக்கு உதவும்.
 
 ஆமென். அல்லேலூயா!
+
+Remnant Tamil Worship – Freely given, All glory to Jesus Christ. ஆமென் | அல்லேலூயா
