@@ -9,3 +9,5 @@ Prayer English:
 Lord Jesus, Your Word is more precious to me than gold. Teach me to love Your commandments above all things and protect me from the proud. Give me understanding and lead me in Your truth. Amen. Hallelujah!
 Tamil:
 கர்த்தாவே இயேசு, உமது வசனம் எனக்கு பொன்னிலும் பசும்பொன்னிலும் மதிப்பானது. உமது கற்பனைகளை எல்லாவற்றிற்கும் மேலாக நேசிக்க எனக்கு கற்றுக்கொடும். அகங்காரரிடமிருந்து என்னைக் காத்து, புரிந்துகொள்ளும் ஞானத்தைத் தாரும். உமது சத்தியத்தில் என்னை நடத்தும். ஆமென். அல்லேலூயா!
+
+Remnant Tamil Worship – Freely given, All glory to Jesus Christ. ஆமென் | அல்லேலூயா
