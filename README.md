@@ -19,6 +19,8 @@ Songs:
 3. என் மறைவிடம் என் கேடகம் | You Are My Hiding Place (119:113-120)
 4. பொன்னிலும் பசும்பொன்னிலும் | More Than Gold (119:121-128)
 5. கர்த்தருடைய வசனத்தின் வெளிச்சம் வந்ததே | The Light of Your Word (119:129-136)
+6. கர்த்தரின் நீதி நித்திய நீதி | Righteous Are You, O Lord (Psalm 119:137-144)
+7. உம்மை நோக்கி கூப்பிட்டேன் | I Called Upon You, O Lord (Psalm 119:145-152)
 
 All songs are dedicated to Jesus Christ, King of Kings and Lord of Lords.
 Hallelujah!
